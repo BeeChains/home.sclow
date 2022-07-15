@@ -2,4 +2,4 @@
 
 
 # get YourCompany.sclow/
-# contact now [@innerinetco](https://twitter.com/innerinetco) | [HireMe.sclow/](http://hireme.sclow.hns.is/) | [email to](mailto:innerinetcompany@gmail.com)
+# contact now [@innerinetco](https://twitter.com/innerinetco) | [HireMe.sclowcountry/](http://hireme.sclowcountry.hns.is/) | [email to](mailto:innerinetcompany@gmail.com)
