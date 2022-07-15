@@ -30,4 +30,4 @@
 
 
 
-i scribe 𓏞𓁿
+I scribe 𓏞𓁿
